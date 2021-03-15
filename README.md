@@ -2,7 +2,7 @@
 100 Greatest Films According to Esquire Entertainment <br>
 
 <br>
-<i>List Scrapped <br></i>
+<i>List Scraped <br></i>
 https://www.empireonline.com/movies/features/best-movies-2/
 
 <h2> Tools </h2>
